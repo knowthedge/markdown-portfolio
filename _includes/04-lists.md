@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+my favorite books:
+- antifragile
+- black swan
+- self-learning is a craft
