@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+i'm a man who will be **boring** sometimes, but actually i just don't know where's my passion. i think in my inner heart, i'm a **wonderful man**.:sparkles:
